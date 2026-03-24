@@ -1,5 +1,5 @@
 # 💫 About Me:
-✨ Quick bio <br>- Hacker man but no skill 👨‍🦽<br>- Wibu guy ⛩️<br>- Nerd, no lover, no work, and no one play 🥺<br>🌱 Study<br>- FPT University Hanoi 🏫<br>⭐️ Interest<br>- Play chess, read book(especially LN), anime<br>- Play game for wibu 🎮<br>- Play CTF(web, crypto, RE), coding 🤓👆<br>🎯 Dream<br>- Hacker man but have skills <br>- Travel<br>- Have money and rich<br>
+✨ Quick bio <br>- Hacker man but no skill 👨‍🦽<br>- Wibu guy ⛩️<br>- Nerd, no lover, no work, and no one play 🥺<br>🌱 Study<br>- FPT University Hanoi 🏫<br>⭐️ Interest<br>- Play chess, read book(especially LN), anime<br>- Play game for wibu 🎮<br>- Play CTF(Reverse engineering and some time web but not too much), coding 🤓👆<br>🎯 Dream<br>- Hacker man but have skills <br>- Travel<br>- Have money and rich<br>
 
 
 ## 🌐 Socials:
